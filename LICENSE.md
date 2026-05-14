@@ -1,4 +1,4 @@
-# 
+# Enhance CorelDRAW for macOS with professional Extension for CorelDRAW for macOS - typography tools and real-time preview, the #1 extension. Includes typography tools and real-time
 
 
 
